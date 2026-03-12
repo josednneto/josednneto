@@ -9,7 +9,7 @@
 
 ---
 
-### Cursando Ciência da Computação.
+### Apaixonado por programação e cursando Ciência da Computação.
 
 **Principais formas de contato:**
 
